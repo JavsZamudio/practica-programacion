@@ -7,3 +7,5 @@ Mi primer dia en la facultad fue muy interesante, yo ya habia estudiado dos seme
 Me deje atrapar por la enormidad, es un nuevo camino que empiezo por emprender y es una sensación demasiado grata. Tengo muchas espectativas que quiero lograr y conseguir, a pesar de las complicaciones permaneceré con la mejor actitud.
 
 Mi primer día en la facultad fue muy importante ya que comenzaía una nueva etapa, la cual podrá cambiar mi futuro, ya que conocí personas que provenían de distintas escuelas, me tocó un horario distinto al que llevaba en bachillerato, me pareció un día muy tranquilo.
+
++Mi primer dia en la facultad fue muy interesante, empeze una nueva etapa y estaba feliz por eso, tambien una nueva experincia al inciar esta nueva etapa en un horario diferente al que estaba acostumbrado, pero me senti bien, me sentía preparado y feliz, cuando culmino me sentía listo para un nuevo día. 
